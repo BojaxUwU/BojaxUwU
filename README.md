@@ -1,0 +1,4 @@
+- 👋 What's poppin' it's ya boi BojaxUwU.
+- 👀 I’m interested in sketching, coding, and gay things.
+- 🌱 I’m currently learning how to code because why not.
+- 📫 How to reach me - Discord: Sausage Cheese Muffin#0086 (yes that's my Discord name lol)
